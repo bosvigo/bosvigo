@@ -1,3 +1,6 @@
-overwhelmed *easily*, especially with large groups of people, **pls iwec always**
-not online often, but i do enjoy talking to people in small groups or one on one :3 
+overwhelmed *easily*, especially with large groups of people, **pls iwec always** ,,, 
+
+not online often, but i do enjoy talking to people in small groups or one on one :3 ,,,
+
 i don't like c + h unless you ask me first ^^...
+
