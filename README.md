@@ -7,7 +7,7 @@
 
 <p align="center"> ${\textsf{\color{red}" You know I ' m down . "}}$
 
-![](https://files.catbox.moe/fr108k.png53)
+![](https://files.catbox.moe/fr108k.png)
 
 [![happily ever after](https://files.catbox.moe/5x8zv0.png)](https://en.pronouns.page/@exodusinamerica)
 [![sole survivor](https://files.catbox.moe/3mry5k.png)](https://guns.lol/bosvigo)
